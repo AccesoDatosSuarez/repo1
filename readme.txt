@@ -4,6 +4,7 @@
 4. Iván
 5. Tamayo
 6. Adrián
-7. Ángel
+7. Acosta
 8. Najm
 9. David
+10. Ángel

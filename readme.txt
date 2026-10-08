@@ -8,4 +8,4 @@
 8. Najm, soy adicto al Six-Seven
 9. David
 10. Ángel
-11. Adrián Socialista Perroflauta
+11. Adrián

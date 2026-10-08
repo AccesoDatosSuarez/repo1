@@ -5,7 +5,7 @@
 5. Iván
 6. Tamayo
 7. Acosta
-8. Najm
+8. Najm, soy adicto al Six-Seven
 9. David
 10. Ángel
-11. Adrián
+11. Adrián Socialista Perroflauta
